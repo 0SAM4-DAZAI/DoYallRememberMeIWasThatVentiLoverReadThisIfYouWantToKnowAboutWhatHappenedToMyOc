@@ -47,7 +47,7 @@ Is Ados a self-insert? Uhh, not really. I remember being a big fan of Venti, so 
 </p>
 
 <p align="center">
-Do you think you will continue continuing on the info of more ocs? No. Most likely not, but I want to have them as a memory when I was crazy trying to think of good lore! If I continue with my ocs, they would have new names or appearances . 
+Do you think you will continue continuing on the info of more ocs? No. Most likely not, but I want to have them as a memory when I was crazy trying to think of good lore! If I continue with my ocs, they would only have new names or appearances . 
 
 <p align="center">
 Why is all of this a bullshit? I knoww, I'm bad creating this but look at me 😔 istg next time I won't create so many ocs
