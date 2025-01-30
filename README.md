@@ -1,5 +1,5 @@
 <p align="center">
-Changed a lot of my gi oc , i'll rmk them . . .
+YALL I DON'T KNOW IF I'LL CONTINUE DOING STUFF OF MY GENSHIN OC !! I don't really care about him rn 💔💔 
 </p>
 
 
