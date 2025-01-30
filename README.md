@@ -7,7 +7,7 @@ I also stopped playing gi cuz of my storage, I'll probably install it again when
 </p>
 
 <p align="center">
-Now, about my genshin ocs...So, I'm not that interested in genshin as I was on the past, and it made me forget remake my ocs . But if we talk about my main oc, do you remember that the birdy was called "Aura" or "Adosttra"? Well no more! I even changed his gender boo...I also no longer made him a God, yes he is still a celestial being but not a God or wtv! His appearance is almost the same, only that he is a man now. As some know, I like to write but it shows that my imagination does not exist so I do not share my stories or lore !
+Now, about my genshin ocs...So, I'm not that interested in genshin as I was on the past, and it made me forget remake my ocs . But if we talk about my main oc, do you remember that the birdy was called "Aura" or "Adosttra"? Well no more! It's Ados now! I even changed his gender boo...I also no longer made him a God, yes he is still a celestial being but not a God or wtv! His appearance is almost the same, only that he is a man now. As some know, I like to write but it shows that my imagination does not exist so I do not share my stories or lore !
 </p>
 
 <p align="center">
@@ -31,7 +31,7 @@ Does that one spirit still haunts Ados? Of course, I didn't change that in the l
 </p>
 
 <p align="center">
-What about his tittles? They are gone too,buddy...
+What about his titles? They are gone too,buddy...
 </p>
 
 <p align="center">
